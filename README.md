@@ -1,4 +1,6 @@
 ![download](https://github.com/Amit-Bhardwaj-ji/Personal-Portfolio-Webpage/assets/97530560/b83e1b2a-b01b-4831-aa82-360bd8f0bd1d)
+![download](https://github.com/a16z-infra/ai-getting-started/assets/97530560/39c1b9a3-d1b4-4244-a49a-4c2a7f5f0e9d)
+
 
 ![](https://raw.githubusercontent.com/halfrost/halfrost/master/icons/header_.png)
 
